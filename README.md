@@ -1,3 +1,1 @@
-#Tugas
-Nama: Lidya Gresya Tambun
-NIM: 2108541034
+Lidya Gresya Tambun(2108541034)
